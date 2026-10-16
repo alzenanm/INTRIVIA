@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [12] Sejauh Ini 
 [Kesan pesan tentang cluster 12 adalah seru meskipun jarang ketemu jadinya tidak sedekat teman-teman ospek fakultas karena sering bertemu]
+
+## Harapan selama kuliah
+[Harapan saya selama kuliah semoga saya bisa mendapatkan ilmu yang bermanfaat]
